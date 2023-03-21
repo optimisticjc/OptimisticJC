@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I can teach you how to dougie
 
+Here are five agreements to live by:
+1. Be impeccable with your word
+2. Don't take anything personally
+3. Don't make assumptions
+4. Always do your best
+5. Be skeptical, but learn to listen
