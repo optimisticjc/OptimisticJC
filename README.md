@@ -11,6 +11,5 @@ Here are some ideas to get you started:
 -->
 - 🔭 I’m currently working on improving my skills.
 - 🌱 I’m currently learning Linux
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I can teach you how to dougie
 
