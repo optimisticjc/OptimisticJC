@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on anything Dev
 - 🤔 I’m looking for help with anyone needing my help
 - 💬 Ask me about motivations
-- 📫 How to reach me: here
+- 📫 How to reach me: [here](Github.com/OptimisticJC)
 -->
 - 🔭 I’m currently working on improving my skills.
 - 🌱 I’m currently learning Linux
