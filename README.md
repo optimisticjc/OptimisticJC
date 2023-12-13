@@ -16,3 +16,4 @@ Here are some ideas to get you started:
 - My favorite dish to make is oxtails.
 - I love going to clear blue beaches, anything less than that is uncivilized.
 - - 📫 How to reach me: [here](Github.com/OptimisticJC)
+- I am from 🇭🇹
