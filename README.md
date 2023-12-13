@@ -7,11 +7,12 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on anything Dev
 - 🤔 I’m looking for help with anyone needing my help
 - 💬 Ask me about motivations
-- 📫 How to reach me: here
+- 📫 How to reach me: [here](Github.com/OptimisticJC)
 -->
 - 🔭 I’m currently working on improving my skills.
 - 🌱 I’m currently learning Linux
 - ⚡ Fun fact: I can teach you how to dougie
 - All I'm saying is; sometimes, all the world need is someone to smile back. So smile! :smile:
 - My favorite dish to make is oxtails.
-- I love going to clear blue beaches, anything less than that is uncivilized. 
+- I love going to clear blue beaches, anything less than that is uncivilized.
+- - 📫 How to reach me: [here](Github.com/OptimisticJC)
